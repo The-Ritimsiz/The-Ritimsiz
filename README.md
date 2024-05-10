@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @The-Ritimsiz
-- 📫mail; the_ritimsiz@protonmail.ch
+- 📫mail; SPY-CX7@proton.me
 
 <!---
 The-Ritimsiz.
